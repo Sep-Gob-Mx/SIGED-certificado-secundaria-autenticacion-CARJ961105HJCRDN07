@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CARJ961105HJCRDN07
+CARJ961105HJCRDN07
